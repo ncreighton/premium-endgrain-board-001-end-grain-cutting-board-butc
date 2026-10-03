@@ -1,0 +1,2 @@
+# premium-endgrain-board-001-end-grain-cutting-board-butc
+Tired of losing track of glue-up schedules, wood species, and client orders across dozens of end grain cutting board projects? This Notion template turns your workshop chaos into a streamlined craft hub.  The End Grain Cutting Board &amp; Butcher Block Craft Hub solves the unique project management challenges of end grain board making—tracking wood inv
